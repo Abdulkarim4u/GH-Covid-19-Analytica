@@ -1,4 +1,4 @@
-**Privacy Policy**
+
 
 Abdul karim moro built the GH covid-19 Analytica app as a Free app. This SERVICE is provided at no cost and is intended for use as is.
 
