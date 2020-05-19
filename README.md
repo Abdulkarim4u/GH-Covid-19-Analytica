@@ -59,6 +59,7 @@ This policy is effective as of 2020-05-18
 
 **Contact Us**
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at Abdul.moro4u@gmail.com.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at ghcovid19analytica@gmail.com
+
 
 
